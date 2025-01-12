@@ -1,6 +1,6 @@
  ![GIF image](https://github.com/user-attachments/assets/fc939b41-136e-46ec-a4c4-4f4322032688)
 
-
+༒
 ↷ ↣𝙸𝙽𝚃𝚁𝙾𝙳𝚄𝙲𝚃𝙸𝙾𝙽↢ ↶
 
 ▶︎name: Tom or Melin
@@ -15,6 +15,10 @@
 
 ▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, George (there's way more)
 
+༒
+
+
+⋱
 
 ↷ ↣𝙸𝙼𝙿𝙾𝚁𝚃𝙰𝙽𝚃 𝙽𝙾𝚃𝙴𝚂 ↢ ↶
 
@@ -30,6 +34,9 @@
 
 ▶︎i tend to go silent at times mid convo. it's either that i'm busy, or that i don't know what to say or even go mute. i struggle with social anxiety, so pleasepleaseplease bare with me!
 
+⋰
+
+✽
 
 ↷ ↣𝙸𝙽𝚃↢ ↶
 
@@ -41,6 +48,9 @@
 
 ▶︎anyone is free to interact
 
+✽
+
+☽
 
 ↷ ↣𝙳𝙽𝙸↢ ↶
 
@@ -52,7 +62,9 @@
 
 ▶︎hazbin hotel AND helluva boss fandom
 
-▶︎natlan likers. 
+▶︎natlan likers.
+
+☽
 
 
 ↷ ↣ if you got a problem with my cosplays or me in general, just hide me. ↢ ↶
