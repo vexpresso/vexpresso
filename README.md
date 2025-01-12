@@ -24,6 +24,12 @@
 
 ▶︎don’t inspire or copy my skins on ponytown
 
+▶︎i tend to get aggressive and mean easily when i'm involved in drama or even outside drama. if i get too aggressive or too mean please tell me right away and i'll try to contain it.
+
+▶︎i'm usually way more comfortable interacting with people when there's a close friend next to me. if i'm alone, it depends if i wanna interact with you or not. 
+
+▶︎i tend to go silent at times mid convo. it's either that i'm busy, or that i don't know what to say or even go mute. i struggle with social anxiety, so pleasepleaseplease bare with me!
+
 
 ↷ ↣𝙸𝙽𝚃↢ ↶
 
