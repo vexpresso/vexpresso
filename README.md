@@ -7,7 +7,7 @@
 
 ▶︎main languages: English, German
 
-▶︎main interests: mouthwashing, honkai: star rail, Detroit: Become Human, Of Mice and Men (if y'all exist...), my own oc’s 
+▶︎main interests: mouthwashing, honkai: star rail, Detroit: Become Human, Of Mice and Men, my own oc’s 
 
 ▶︎other interests i could talk to you about: eddsworld, genshin impact, danganronpa, cookie run: kingdom
 
