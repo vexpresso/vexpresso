@@ -9,7 +9,7 @@
 
 ▶︎main interests: mouthwashing, honkai: star rail, detroit: become human, of mice and men, my own oc’s 
 
-▶︎other interests i could talk to you about: eddsworld, genshin impact, danganronpa, cookie run: kingdom, red dead redemption 
+▶︎other interests (not actively though): eddsworld, genshin impact, danganronpa, cookie run: kingdom, red dead redemption 
 
 ▶︎fav artists: radiohead, mitski, ethel cain
 
