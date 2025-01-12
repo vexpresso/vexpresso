@@ -7,11 +7,13 @@
 
 ▶︎main languages: English, German
 
-▶︎main interests: mouthwashing, honkai: star rail, my own oc’s 
+▶︎main interests: mouthwashing, honkai: star rail, Detroit: Become Human, Of Mice and Men (if y'all exist...), my own oc’s 
 
 ▶︎other interests i could talk to you about: eddsworld, genshin impact, danganronpa, cookie run: kingdom
 
-▶︎main music: radiohead, mitski, ethel cain
+▶︎fav artists: radiohead, mitski, ethel cain
+
+▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, George (there's way more)
 
 
 ↷ ↣𝙸𝙼𝙿𝙾𝚁𝚃𝙰𝙽𝚃 𝙽𝙾𝚃𝙴𝚂 ↢ ↶
