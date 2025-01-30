@@ -12,7 +12,7 @@
 
 ▶︎other interests (not actively though): eddsworld, genshin impact, danganronpa, cookie run: kingdom, red dead redemption 
 
-▶︎fav artists: radiohead, mitski, ethel cain
+▶︎fav artists: radiohead, mitski, ethel cain, miss construction
 
 ▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, George (there's way more)
 
