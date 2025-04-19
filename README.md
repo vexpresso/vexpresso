@@ -6,15 +6,15 @@
 
 ▶︎name: Tom or Melin
 
-▶︎main languages: English, German
+▶︎main languages: English, German, a bit Romanian
 
-▶︎main interests: mouthwashing, honkai: star rail, detroit: become human, my own oc’s 
+▶︎main interests: mouthwashing, honkai: star rail, detroit: become human, my own oc’s
 
-▶︎other interests (not actively though): eddsworld, genshin impact, of mice and men, danganronpa, cookie run: kingdom, red dead redemption 
+▶︎other interests (not actively though): eddsworld, ENA, genshin impact, of mice and men, danganronpa, cookie run: kingdom, red dead redemption 
 
 ▶︎fav artists: radiohead, mitski, ethel cain, miss construction, arca
 
-▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, so on
+▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, there's WAY more...
 
 ༒
 
@@ -23,17 +23,15 @@
 
 ↷ ↣𝙸𝙼𝙿𝙾𝚁𝚃𝙰𝙽𝚃 𝙽𝙾𝚃𝙴𝚂 ↢ ↶
 
-▶︎yes, i cosplay bad characters and have morally bad ocs. no, i don’t support anything the characters made or do. i just enjoy villains and like them as such.
+▶︎yes, i cosplay bad characters and have morally bad ocs (all of my ocs fall in the mafia line). no, i don’t support anything the characters made or do. i just enjoy villains and like them as such.
 
 ▶︎please always look at my name for tags. be it dniuf, dniuid, whatever. 
 
 ▶︎don’t inspire or copy my skins on ponytown
 
-▶︎no, i'm not open for c+h...
-
 ▶︎i'm usually way more comfortable interacting with people when there's a close friend next to me. if i'm alone, it depends if i wanna interact with you or not. 
 
-▶︎i tend to go silent at times mid convo. it's either that i'm busy, or that i don't know what to say or even go mute. i struggle with social anxiety, so pleasep bare with me!
+▶︎i tend to go silent at times mid convo. it's either that i'm busy, or that i don't know what to say or even go mute. i struggle with social anxiety, so please PLEASE bare with me!
 
 ⋰
 
@@ -45,7 +43,7 @@
 
 ▶︎15+ people (i'm a young adult and don't feel comfortable interacting with people very young)
 
-▶︎people who like jimmy from mw (as a villain, obv)
+▶︎people who share same interest, music and such!!
 
 ▶︎anyone is free to interact
 
