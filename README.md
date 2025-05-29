@@ -4,7 +4,7 @@
 
 ↷ ↣𝙸𝙽𝚃𝚁𝙾𝙳𝚄𝙲𝚃𝙸𝙾𝙽↢ ↶
 
-▶︎name: Tom or Melin
+▶︎name: Tom 
 
 ▶︎main languages: English, German, a bit Romanian
 
@@ -14,7 +14,7 @@
 
 ▶︎fav artists: radiohead, mitski, ethel cain, miss construction, arca
 
-▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, Connor, there's WAY more...
+▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, there's WAY more...
 
 ༒
 
