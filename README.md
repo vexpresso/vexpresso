@@ -8,13 +8,13 @@
 
 ▶︎main languages: English, German, a bit Romanian
 
-▶︎main interests: mouthwashing, honkai: star rail, detroit: become human, my own oc’s
+▶︎main interests: mouthwashing, date everything, honkai: star rail, detroit: become human, my own oc’s
 
 ▶︎other interests (not actively though): eddsworld, ENA, genshin impact, of mice and men, danganronpa, cookie run: kingdom, red dead redemption 
 
-▶︎fav artists: radiohead, mitski, ethel cain, miss construction, arca
+▶︎fav artists: radiohead, mitski, miss construction, arca
 
-▶︎fav characters: Jimmy, Daisuke, Gallagher, Boothill, Neuvillette, Hank, there's WAY more...
+▶︎fav characters: Jimmy, Cam, Gallagher, Neuvillette, Hank, there's WAY more...
 
 ༒
 
@@ -70,8 +70,6 @@
 
 ↷ ↣ if you got a problem with my cosplays or me in general, just hide me. ↢ ↶
 
-♥︎ and for the end, my special people <3:
-♡ nathan, zaiden, milo, elijah, melina, leo, dominik, alex, kris, eddie, dylan (love y’all) ♡
 
 ↷ ↣That's all! Thanks for reading!↢ ↶
 
